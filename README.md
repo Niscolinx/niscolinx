@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **munisco12@gmail.com**
 
-- 📄 Know about my experiences [https://Igboanugwo-collins.com/](https://igboanugwo-collins.com/)
+- 📄 Know about my experiences [https://Igboanugwo-collins.com](https://igboanugwo-collins.com)
 
 - ⚡ Fun fact **I think am jovial and funny**
 
